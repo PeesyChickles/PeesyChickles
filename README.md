@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PeesyChickles
-- 👀 I’m interested in crashing funerals
+- 👀 I’m interested in things
 - 🌱 I’m currently learning some stuff
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: email
